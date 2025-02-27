@@ -39,49 +39,49 @@
 
 
 - **Milan Morning**  
-  350-89-180  
+ Loading...  
   10:15 AM - 11:15 AM
 
 - **Sridevi**  
-  599-34-400  
+  Loading... 
   11:35 AM - 12:35 PM
 
 - **Kalyan Morning**  
-  148-33-689  
+ Loading...  
   11:00 AM - 12:02 PM
 
 - **Padmavathi**  
-  350-86-150  
+ Loading... 
   11:40 AM - 12:40 PM
 
 - **Madhuri**  
-  567-85-690  
+ Loading...  
   11:45 AM - 12:45 PM
 
 - **Rajdhani Morning [Main]**  
-  900-98-125  
+ Loading...   
   11:25 AM - 12:55 PM
 
 - **Sridevi Morning**  
-  160-71-245  
+ Loading...  
   09:30 AM - 10:30 AM
 
 - **Maharani**  
-  370-01-128  
+ Loading...   
   12:15 PM - 02:15 PM
 
 - **Karnataka Day**  
-  188-71-489  
+Loading...  
   10:00 AM - 11:00 AM
 
 - **Time Bazar Morning**  
-  148-33-490  
+  Loading... 
   11:10 AM - 12:10 PM
 
 - **Time Bazar**  
-  169-63-157  
+ Loading...  
   01:10 PM - 02:10 PM
 
 - **Tara Mumbai Day**  
-  238-31-678  
+  Loading...  
   01:35 PM - 03:00 PM
